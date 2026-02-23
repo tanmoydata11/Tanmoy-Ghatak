@@ -1,2 +1,0 @@
-# Tanmoy-Ghatak
-About Me
